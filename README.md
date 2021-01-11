@@ -1,0 +1,1 @@
+This recipe is for savory pretzel bites, perfect for watching movies at home or just a nice snack.
